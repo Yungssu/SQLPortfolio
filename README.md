@@ -47,4 +47,3 @@ Thank you for considering my application. I look forward to the possibility of c
 
 Sincerely,
 Kenneth Huyong
-[Your Full Name]
